@@ -1,1 +1,0 @@
-# SWISSTA6
